@@ -1,0 +1,2 @@
+# premium-vise-build-001-bench-vise-building-jaw-alig
+Stop fighting with crooked jaws and wasted materials—this Notion template turns your bench vise build into a precision craft, eliminating alignment guesswork.  The Bench Vise Building &amp; Jaw Align Craft Lab solves the #1 frustration in vise building: misaligned jaws that ruin hours of work. With a built-in alignment calculator, material tracker, and
